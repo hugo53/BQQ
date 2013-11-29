@@ -1,4 +1,4 @@
-Under-construction! Please visit later
+BQQ is under-construction. Please visit later!
 
 
 
